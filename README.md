@@ -104,3 +104,10 @@ G/q + 验证码
 tg:[https://t.me/jichang114](https://t.me/jichang114)
 进tg群 发 `优惠码` or `白嫖码`
 100GB/月
+
+---
+
+**[大白](www.dabai.in)**
+常见邮箱 + 验证码
+90TB/月 网页签到
+tg:[https://t.me/dabai_user](https://t.me/dabai_user)
